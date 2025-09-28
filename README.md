@@ -1,1 +1,1 @@
-![Image](https://github.com/AlenaNadezhkina/ima/blob/master/492293829-4a567e9e-23d4-4f8f-8a95-723e795c7e02.png)
+<img width="969" height="672" alt="Image" src="https://github.com/user-attachments/assets/842d64e0-751e-4fd5-8e6e-f42869751d9c" />
